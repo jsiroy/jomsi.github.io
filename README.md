@@ -1,1 +1,0 @@
-# jomsi.github.io
